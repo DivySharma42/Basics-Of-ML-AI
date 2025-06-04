@@ -68,7 +68,7 @@ Want to connect or follow along?
 
 - GitHub: [DivySharma42]
 - LinkedIn: [Divy Sharma](https://www.linkedin.com/in/divysharma99/)
-- Email: sharmadivy99@wgmail.com
+- Email: sharmadivy99@gmail.com
 
 ---
 
